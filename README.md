@@ -1,1 +1,1 @@
-Independent alignment researcher.
+Research scientist at Tiameus
